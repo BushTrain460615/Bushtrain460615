@@ -1,6 +1,6 @@
-![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=MemeHoovy&show_icons=true&theme=radical&count_private=true)
+![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=BushTrain460615&show_icons=true&theme=radical&count_private=true)
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=MemeHoovy)](https://github.com/anuraghazra/github-readme-stats)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=BushTrain460615)](https://github.com/anuraghazra/github-readme-stats)
 
 Hello, I do FNF content and other crap.
 
@@ -8,11 +8,9 @@ Hello, I do FNF content and other crap.
 
 ![helltaker-modeus (4)](https://user-images.githubusercontent.com/97995998/184876571-97b808ce-20d6-45d4-b2ac-92d53e8ef1d1.gif)
 
-Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
+Youtube Channel: I Got Banned lol :troll:
 
-Discord: MemeHoovy#8234
-
-Linktree: https://linktr.ee/memehoovy
+Discord: Baki Hanma.subject{error}#9698
 
 Note that if I do not respond either I:
 Didn't see or notice your message. (Likely to happen, I kinda have my notifications on silent.)
