@@ -6,4 +6,4 @@ Hello, I do FNF content and other crap.
 
 Youtube Channel: I Got Banned lol :troll:
 
-Discord: Baki Hanma.subject{error}#9698
+Discord: Walter White#9698
