@@ -4,8 +4,9 @@
 
 ![trophy](https://github-profile-trophy.vercel.app/?username=BushTrain460615&row=2&column=3&theme=juicyfresh)
 
-Hello, I do FNF content and other shit.
+Hi I do a bunch of Haxe, c++, c, and java
 
-Youtube Channel: I Got Banned lol :troll:
+I make music too
 
-Discord: Walter White#9698
+All Platforms: Bushtrain69thecool
+
