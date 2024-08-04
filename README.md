@@ -9,8 +9,5 @@ Hi I do a bunch of Haxe, c++, c, and java
 
 I make music too
 
-All Platforms: br4dn!
-i also have another with a bad song on it
-br4dn
-made it as a yuni miles type song
+All Platforms: br4dn
 
